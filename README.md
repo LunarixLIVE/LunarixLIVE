@@ -1,4 +1,3 @@
 - 👋 Hi, I’m @LunarixLIVE
 - 👀 I’m interested in Dream smp!
-- 💞
 - 📫 How to reach me smartcooki32021@gmail.com, My discord is LunarixLIVE#9994
